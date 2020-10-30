@@ -1,2 +1,2 @@
 # Hello-Ming
-New arrival, please give me more advice
+I'm new here. Please give me some advice
